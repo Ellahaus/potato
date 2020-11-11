@@ -1,0 +1,106 @@
++++
+        
+author = "Our Writers"
+        
+title = "How Much Does A Raizer Lift Chair Cost"
+        
+date = 2020-11-10T08:49:59.434594
+        
++++
+[ ![](https://www.rehabmart.com/imagesfromrd/PF162957_PRI01_(1).jpg)](https://www.rehabmart.com/imagesfromrd/PF162957_PRI01_(1).jpg) Raizer LiftUp Mobile Lifting Chair - FREE Shipping
+[ ![](https://www.liftup.us/media/3597/12.jpg)](https://www.liftup.us/media/3597/12.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://rescuelift.com/wp-content/uploads/2018/09/chair-3.png)](https://rescuelift.com/wp-content/uploads/2018/09/chair-3.png) Raizer Lift Chair By Rescue Lift | Mobile Lifting Chair
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-1.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-1.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-15.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-15.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://101mobility.com/wp-content/uploads/2019/05/raizer-by-liftup-1000px-1-700x730.jpg)](https://101mobility.com/wp-content/uploads/2019/05/raizer-by-liftup-1000px-1-700x730.jpg) Raizer by Liftup - 101 Mobility
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2016/12/20181119-YCE-How-the-Raizer-Lifts.jpg?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2016/12/20181119-YCE-How-the-Raizer-Lifts.jpg?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://www.liftup.us/media/3605/3.jpg)](https://www.liftup.us/media/3605/3.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://kohllsrx.com/wp-content/uploads/2019/08/kohllsrx-hdr-home-med-lifts-assists-raizer-sale-b.jpg)](https://kohllsrx.com/wp-content/uploads/2019/08/kohllsrx-hdr-home-med-lifts-assists-raizer-sale-b.jpg) Raizer LiftUp Chairs – Kohlls Rx
+[ ![](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer.jpg)](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer.jpg) Raizer Lifting Chair - Active Healthcare
+[ ![](https://www.made2aid.co.uk/images/AAT/lift1.jpg)](https://www.made2aid.co.uk/images/AAT/lift1.jpg) Raizer Emergency Lifting Chair | Made2Aid
+[ ![](https://www.raizer.com/media/5667/liftup-raizer-2-0979.jpg)](https://www.raizer.com/media/5667/liftup-raizer-2-0979.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre01.jpg.pagespeed.ic.4sZtnUoUkc.jpg)](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre01.jpg.pagespeed.ic.4sZtnUoUkc.jpg) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/9.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/9.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-2-249x212.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-2-249x212.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://www.liftup.us/media/3596/11.jpg)](https://www.liftup.us/media/3596/11.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-1-416x312.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-1-416x312.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://www.startupselfie.net/wp-content/uploads/2018/06/Battery-Operated-Mobile-Lifting-Chair.jpg)](https://www.startupselfie.net/wp-content/uploads/2018/06/Battery-Operated-Mobile-Lifting-Chair.jpg) Battery operated mobile lifting chair helps a fallen person
+[ ![](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre02.jpg.pagespeed.ic.ojR290uJFD.jpg)](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre02.jpg.pagespeed.ic.ojR290uJFD.jpg) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp
+[ ![](https://www.raizer.com/media/5675/liftup-raizer-2-1165.jpg)](https://www.raizer.com/media/5675/liftup-raizer-2-1165.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Lift_2.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Lift_2.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-1-1.jpg)](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-1-1.jpg) Raizer Lifting Chair - Active Healthcare
+[ ![](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre06.jpg.pagespeed.ic.eF354FkYqO.jpg)](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre06.jpg.pagespeed.ic.eF354FkYqO.jpg) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-packaging-2-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-packaging-2-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://www.liftup.us/media/4758/raizer_24728-1.jpg)](https://www.liftup.us/media/4758/raizer_24728-1.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre06.jpg&maxheight=500&width=640&quality=80)](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre06.jpg&maxheight=500&width=640&quality=80) Raizer LiftUp Mobile Lifting Chair - FREE Shipping
+[ ![](https://img.medicalexpo.com/images_me/photo-g/108085-11183802.jpg)](https://img.medicalexpo.com/images_me/photo-g/108085-11183802.jpg) Lift chair - Raizer® - Liftup A/S - electric
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-3-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-3-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre07.jpg.pagespeed.ic.n_iMI8Y5d6.jpg)](https://cdn.amicamedicalsupply.com/media/catalog/product/cache/1/image/540x/9df78eab33525d08d6e5fb8d27136e95/m/d/xmdsraizer_hre07.jpg.pagespeed.ic.n_iMI8Y5d6.jpg) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Instruction_1.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Instruction_1.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://www.raizer.com/media/5665/liftup-raizer-2-0964.jpg)](https://www.raizer.com/media/5665/liftup-raizer-2-0964.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://catalogcontent.medline.com/wp-content/uploads/2017/11/Mod3_img4.png)](https://catalogcontent.medline.com/wp-content/uploads/2017/11/Mod3_img4.png) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp | Medline  Industries, Inc.
+[ ![](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-1.jpg)](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-1.jpg) Raizer Lifting Chair - Active Healthcare
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-5.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-5.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre04.jpg&maxheight=500&width=640&quality=80)](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre04.jpg&maxheight=500&width=640&quality=80) Raizer LiftUp Mobile Lifting Chair - FREE Shipping
+[ ![](https://www.liftup.us/media/3600/15.jpg)](https://www.liftup.us/media/3600/15.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://www.raizer.com/media/5670/liftup-raizer-2-1002.jpg)](https://www.raizer.com/media/5670/liftup-raizer-2-1002.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://img.medicalexpo.com/pdf/repository_me/108085/raizer-173856_1mg.jpg)](https://img.medicalexpo.com/pdf/repository_me/108085/raizer-173856_1mg.jpg) Raizer® - Liftup A/S - PDF Catalogs | Technical Documentation
+[ ![](https://secure.hmepowerweb.com/Resources/Uploads/3a31c556-9400-4dc3-9aee-74d952c425ac.jpg)](https://secure.hmepowerweb.com/Resources/Uploads/3a31c556-9400-4dc3-9aee-74d952c425ac.jpg) Raizer Lifting Chair :: Ceiling Lifts, Patient Lifts and Slings :: Liftup
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-3-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-3-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://www.raizer.com/media/5721/img_1964.png)](https://www.raizer.com/media/5721/img_1964.png) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://www.liftup.dk/media/4754/raizer_22504-1.jpg)](https://www.liftup.dk/media/4754/raizer_22504-1.jpg) Raizer - Raizer lifting chair - Find details here - Liftup
+[ ![](https://autofarmmobility.com/wp-content/uploads/2019/08/Untitled-1-324x324.jpg)](https://autofarmmobility.com/wp-content/uploads/2019/08/Untitled-1-324x324.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://i.ytimg.com/vi/ZH2CgoUPOYM/sddefault.jpg)](https://i.ytimg.com/vi/ZH2CgoUPOYM/sddefault.jpg) RAIZER by Liftup - YouTube
+[ ![](https://rescuelift.com/wp-content/uploads/2018/10/liftup_logo_pantone_black_press-300x180.jpg)](https://rescuelift.com/wp-content/uploads/2018/10/liftup_logo_pantone_black_press-300x180.jpg) Raizer Lift Chair By Rescue Lift | Mobile Lifting Chair
+[ ![](x-raw-image:///b44dad442500f785e94d38f0e4f222c5cd7a998ff3f75ec865513982883edbac)](x-raw-image:///b44dad442500f785e94d38f0e4f222c5cd7a998ff3f75ec865513982883edbac) Evaluation of the Raizer from Liftup
+[ ![](https://i.ytimg.com/vi/3vLWZHHnsEI/maxresdefault.jpg)](https://i.ytimg.com/vi/3vLWZHHnsEI/maxresdefault.jpg) Demonstrating the Raizer Emergency Lifting Chair - YouTube
+[ ![](https://img.medicalexpo.com/images_me/photo-m2/88563-15086131.jpg)](https://img.medicalexpo.com/images_me/photo-m2/88563-15086131.jpg) Lift chair - All medical device manufacturers - Videos
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2016/12/MGL4278-min.jpg?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2016/12/MGL4278-min.jpg?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://cdn.dotmed.com/images/listingpics/2879270.jpg)](https://cdn.dotmed.com/images/listingpics/2879270.jpg) Used LIFTUP Raizer Patient Lift For Sale - DOTmed Listing #2879270:
+[ ![](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre07.jpg&maxheight=500&width=640&quality=80)](https://image.rehabmart.com/include-mt/img-resize.asp?path=/productimages/pf162957_hre07.jpg&maxheight=500&width=640&quality=80) Raizer LiftUp Mobile Lifting Chair - FREE Shipping
+[ ![](https://rescuelift.com/wp-content/uploads/2018/09/how-it-helps.png)](https://rescuelift.com/wp-content/uploads/2018/09/how-it-helps.png) Raizer Lift Chair By Rescue Lift | Mobile Lifting Chair
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-10.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-10.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://i.ytimg.com/vi/GJLQn4pgWNM/maxresdefault.jpg)](https://i.ytimg.com/vi/GJLQn4pgWNM/maxresdefault.jpg) Raizer LiftUp Chairs – Kohlls Rx
+[ ![](https://www.raizer.com/media/5664/liftup-raizer-2-0940.jpg)](https://www.raizer.com/media/5664/liftup-raizer-2-0940.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-2-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-2-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://i.vimeocdn.com/video/674536908.webp?mw=1600&mh=900&q=70)](https://i.vimeocdn.com/video/674536908.webp?mw=1600&mh=900&q=70) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp
+[ ![](https://www.liftup.us/media/3603/18.jpg)](https://www.liftup.us/media/3603/18.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-4-O-Neill-Healthcare.png)](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-4-O-Neill-Healthcare.png) Raizer Mobile Lifting Chair - O Neill Healthcare
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-6.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-6.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://www.raizer.com/media/5672/liftup-raizer-2-1093.jpg)](https://www.raizer.com/media/5672/liftup-raizer-2-1093.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-packaging-1-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-packaging-1-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://post.greatist.com/wp-content/uploads/2020/04/senior_getting_help_to_stand-1200x628-facebook-1200x628.jpg)](https://post.greatist.com/wp-content/uploads/2020/04/senior_getting_help_to_stand-1200x628-facebook-1200x628.jpg) Does Medicare Cover Lift Chairs?
+[ ![](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-4.jpg)](https://activehealthcare.co.nz/wp-content/uploads/2017/08/Raizer-4.jpg) Raizer Lifting Chair - Active Healthcare
+[ ![](https://video.medicalexpo.com/video_me/video-thb-g/46546.jpg)](https://video.medicalexpo.com/video_me/video-thb-g/46546.jpg) Lift chair - Raizer® - Liftup A/S - electric
+[ ![](https://www.liftup.us/media/4746/liftup-30-05-2018_tryk_25987.jpg)](https://www.liftup.us/media/4746/liftup-30-05-2018_tryk_25987.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-11.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-11.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://catalogcontent.medline.com/wp-content/uploads/2017/10/MOd1_banner-1.png)](https://catalogcontent.medline.com/wp-content/uploads/2017/10/MOd1_banner-1.png) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp | Medline  Industries, Inc.
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-3-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-3-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://i.ytimg.com/vi/JbncXdLTtXs/maxresdefault.jpg)](https://i.ytimg.com/vi/JbncXdLTtXs/maxresdefault.jpg) How do you deal with falls? Raizer Emergency Lifting Chair - YouTube
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Hygiene-Cover.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Hygiene-Cover.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://www.raizer.com/media/5716/img_1912.png)](https://www.raizer.com/media/5716/img_1912.png) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://rescuelift.com/wp-content/uploads/2018/10/DSC9994_FRITTET.jpg)](https://rescuelift.com/wp-content/uploads/2018/10/DSC9994_FRITTET.jpg) Raizer Lift Chair By Rescue Lift | Mobile Lifting Chair
+[ ![](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-Home-Care-O-Neill-Healthcare.jpg)](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-Home-Care-O-Neill-Healthcare.jpg) Raizer Mobile Lifting Chair - O Neill Healthcare
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-2.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-2.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://img.medicalexpo.com/images_me/photo-m2/108085-11183874.jpg)](https://img.medicalexpo.com/images_me/photo-m2/108085-11183874.jpg) Lift chair - Raizer® - Liftup A/S - electric
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-1-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-in-use-1-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Seat-belt_1-600x450.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Seat-belt_1-600x450.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://www.liftup.us/media/3595/10.jpg)](https://www.liftup.us/media/3595/10.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://www.raizer.com/media/5692/liftup-raizer-2-1783.jpg)](https://www.raizer.com/media/5692/liftup-raizer-2-1783.jpg) Raizer II - Raizer lifting chair - Find details here - Liftup
+[ ![](https://i.pinimg.com/564x/d3/47/fc/d347fce2a4f3494043a72688046de32d.jpg)](https://i.pinimg.com/564x/d3/47/fc/d347fce2a4f3494043a72688046de32d.jpg) Pin on Autoimmune Disease
+[ ![](https://i.ytimg.com/vi/Q3IqxsIz29o/maxresdefault.jpg)](https://i.ytimg.com/vi/Q3IqxsIz29o/maxresdefault.jpg) Raizer LiftUp Chairs – Kohlls Rx
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-7.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-7.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://www.independentliving.co.uk/wp-content/uploads/2013/05/raizer-lifting-chair-for-fallen-persons.jpg)](https://www.independentliving.co.uk/wp-content/uploads/2013/05/raizer-lifting-chair-for-fallen-persons.jpg) Raizer lifting chair | Product | Independent Living
+[ ![](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-1.1-900x900.jpg)](https://www.felgains.com/wp-content/uploads/2019/10/Raizer-2-Closeup-1.1-900x900.jpg) Raizer II Emergency Lifting Chair - Lift a Fallen Person - Felgains
+[ ![](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-User-Manual.png)](https://onhealthcare.ie/wp-content/uploads/2017/01/Liftup-Raizer-User-Manual.png) Raizer Mobile Lifting Chair - O Neill Healthcare
+[ ![](https://rescuelift.com/wp-content/uploads/2019/02/canstockphoto9953137-e1551137223907.jpg)](https://rescuelift.com/wp-content/uploads/2019/02/canstockphoto9953137-e1551137223907.jpg) Raizer Lift Chair By Rescue Lift | Mobile Lifting Chair
+[ ![](https://www.mda.org/sites/default/files/PortableLift_1.jpg)](https://www.mda.org/sites/default/files/PortableLift_1.jpg) Quest - Article - Portable Lifts: A Real Pick-Me-Up for Caregivers |  Muscular Dystrophy Association
+[ ![](https://catalogcontent.medline.com/wp-content/uploads/2017/11/Mod4_img3.jpg)](https://catalogcontent.medline.com/wp-content/uploads/2017/11/Mod4_img3.jpg) Raizer Mobile Lifting Chair for Safe Patient Handling by LiftUp | Medline  Industries, Inc.
+[ ![](https://i.ytimg.com/vi/rdiowOJOMhQ/maxresdefault.jpg)](https://i.ytimg.com/vi/rdiowOJOMhQ/maxresdefault.jpg) Demonstrating the Raizer Emergency Lifting Chair - YouTube
+[ ![](https://i.ytimg.com/vi/w5Thxofqzk0/hqdefault.jpg)](https://i.ytimg.com/vi/w5Thxofqzk0/hqdefault.jpg) Raizer Lifting Chair - Safe Patient Handling Device Boise, ID | Client Care  Equipment
+[ ![](https://www.carehome.co.uk/article_photos/largephotos/1613009.jpg)](https://www.carehome.co.uk/article_photos/largephotos/1613009.jpg) The Gables invests in new lifting chair technology
+[ ![](https://www.liftup.us/media/3604/2.jpg)](https://www.liftup.us/media/3604/2.jpg) Raizer - Raizer lifting chair - Find details here - Liftup Inc.
+[ ![](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Instruction_3-scaled.png?x77967)](https://www.yorkshirecareequipment.com/wp-content/uploads/2019/12/Instruction_3-scaled.png?x77967) Raizer II – Falls Emergency Lifting Chair | Yorkshire Care Equipment
+[ ![](https://chp-aws-media.s3-accelerate.amazonaws.com/2018/12/Raizer.jpg)](https://chp-aws-media.s3-accelerate.amazonaws.com/2018/12/Raizer.jpg) Raizer deal gives a lift to retirement villages across the UK
+[ ![](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-12.jpg)](https://autofarmmobility.com/wp-content/uploads/2017/12/Raizer-12.jpg) RAIZER by Liftup - AutoFarmMobility
+[ ![](https://www.raizer.com/media/5717/img_1927.png)](https://www.raizer.com/media/5717/img_1927.png) Raizer II - Raizer lifting chair - Find details here - Liftup

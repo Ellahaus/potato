@@ -1,0 +1,109 @@
++++
+        
+author = "Our Writers"
+        
+title = "Floor Chair Shopee"
+        
+date = 2020-11-09T22:52:09.905129
+        
++++
+[ ![](https://cf.shopee.com.my/file/8f17a739babde453668b1cfe48b69b3f)](https://cf.shopee.com.my/file/8f17a739babde453668b1cfe48b69b3f) Designer Floor Seating Chair | Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/db4cb3ccb33323fef5fb3dbbda380a1a)](https://cf.shopee.ph/file/db4cb3ccb33323fef5fb3dbbda380a1a) Folding Floor Chair Gaming Chair Adjustable Lounger Sofa Lazy Seat Faux  Leather | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/1e1d4d5b661d5b1e3fa9229fb14f7480)](https://cf.shopee.com.my/file/1e1d4d5b661d5b1e3fa9229fb14f7480) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.ph/file/b443f3141385acf9ea4be66a2f0b9101_tn)](https://cf.shopee.ph/file/b443f3141385acf9ea4be66a2f0b9101_tn) Beanbag Tatami Cushion Single Folding Chair Living Room Small Back Chair |  Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/8d579c2ee1719c8fe66ceb0d40ef2be9)](https://cf.shopee.com.my/file/8d579c2ee1719c8fe66ceb0d40ef2be9) Foldable Floor Chair Adjustable Relaxing Lazy Sofa Seat Cushion Lounger  (GRAY) | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/fdce0664ead6cd96875881eab42424e6)](https://cf.shopee.com.my/file/fdce0664ead6cd96875881eab42424e6) Floor Chair Home Cushion Foldable Sofa Seat Lazy Relaxing Office Lounger |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/e73f572770e8870bf0fde2d73d3c6551)](https://cf.shopee.ph/file/e73f572770e8870bf0fde2d73d3c6551) Portable Folding Tatami Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.sg/file/edb5b14658504a92f790b2eb8cbeddec)](https://cf.shopee.sg/file/edb5b14658504a92f790b2eb8cbeddec) T2P Floor Chair Tatami Chair Foldable Chair Home Furniture Perfect Lazy  Staple Family House Decorations | Shopee Singapore
+[ ![](https://cf.shopee.com.my/file/4836fd8527ce507cb8306b1881f0f54e)](https://cf.shopee.com.my/file/4836fd8527ce507cb8306b1881f0f54e) 18 Lazy Sofa Tatami Small Sofa Chair Single Folding Bed Chair Floating  Window Chair Floor Chair | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/12f7556f558b82b0ef758ebd756648f8)](https://cf.shopee.com.my/file/12f7556f558b82b0ef758ebd756648f8) Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/723046a06c8f7246cdb562b86193b1c5)](https://cf.shopee.com.my/file/723046a06c8f7246cdb562b86193b1c5) Adjustable Floor Chair / Floor Couch Multi Angle Lazy Chair Soft Cushion |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/9b151d4edd47566bc4978f4afcf3de07)](https://cf.shopee.ph/file/9b151d4edd47566bc4978f4afcf3de07) Hengyu Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion Lounger Office  Home | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/71af4a611e84f2c0bc445641a187bd9e)](https://cf.shopee.ph/file/71af4a611e84f2c0bc445641a187bd9e) Reclining floor chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/208fd1bcff512f933b1444e8477a47c0)](https://cf.shopee.com.my/file/208fd1bcff512f933b1444e8477a47c0) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.com.my/file/91d20fd8012ac3610f93e3ce90916eaf)](https://cf.shopee.com.my/file/91d20fd8012ac3610f93e3ce90916eaf) Japan Style Multi Angle Floor Folding Chair (free shipping) | Shopee  Malaysia
+[ ![](https://cf.shopee.com.my/file/8a7c82ec72cba2481afa2ca15b9f3f27)](https://cf.shopee.com.my/file/8a7c82ec72cba2481afa2ca15b9f3f27) ZROM Brand Flodable Padded Floor Chair Lazy Sofa Futon Ergonomic Couch 5  Position Adjustable Back Size 95*35*13 cm | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/adcf332ecf2b26a0a4e12030270918bd)](https://cf.shopee.com.my/file/adcf332ecf2b26a0a4e12030270918bd) Back Support Chair / Legless Chair / Floor Chair / Foldable Chair (Extra  Thick Cushion) | Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/7ee2a65bb30b7094918baceedc35948a)](https://cf.shopee.ph/file/7ee2a65bb30b7094918baceedc35948a) Lazy Curved Tatami Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/7a342df60ba4a0e1d17e32393d0cce86)](https://cf.shopee.com.my/file/7a342df60ba4a0e1d17e32393d0cce86) Padded Floor Chair Multiangle Adjustable Backrest Soft Foam Recliner |  Shopee Malaysia
+[ ![](https://cf.shopee.sg/file/a64cc5b0e52b8cb172c7acd82d391517)](https://cf.shopee.sg/file/a64cc5b0e52b8cb172c7acd82d391517) Adjustable Floor Chair Folding Couch Recliner Lazy Lounge / Bed / Sofa |  Shopee Singapore
+[ ![](https://cf.shopee.ph/file/e1ac3d722051b8ed8808deaa36c1aeec)](https://cf.shopee.ph/file/e1ac3d722051b8ed8808deaa36c1aeec) Folding Floor Chair Gaming Chair Adjustable Lounger Sofa Lazy Seat Eight  Grid | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/e580a171443bb1a7a755ef0af6683c30)](https://cf.shopee.com.my/file/e580a171443bb1a7a755ef0af6683c30) Seashells tatami folding a single small lazy sofa is bed computer back floor  chair | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/1b04b8a7f12425771cc198de50b91973)](https://cf.shopee.com.my/file/1b04b8a7f12425771cc198de50b91973) Adjustable Floor Chair Folding Couch Recliner Lazy Lounge / Bed / Sofa |  Shopee Malaysia
+[ ![](https://cf.shopee.sg/file/560853ab15f0338efa96d30ebf1702a6)](https://cf.shopee.sg/file/560853ab15f0338efa96d30ebf1702a6) Adjustable Floor Chair Folding Couch Recliner Lazy Lounge / Bed / Sofa |  Shopee Singapore
+[ ![](https://cf.shopee.sg/file/dbccbc75e4d1aa621b6685cfde93a20c)](https://cf.shopee.sg/file/dbccbc75e4d1aa621b6685cfde93a20c) Japanese Tatami Chair / Wood Chair / Legless Chair / Floor Chair Thicker  Cushion | Shopee Singapore
+[ ![](https://cf.shopee.ph/file/efcd3004faa9c2af1ef1b6661ab57b8b)](https://cf.shopee.ph/file/efcd3004faa9c2af1ef1b6661ab57b8b) Recliner floor chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/922622c834aef6f11de91e6c71ca1c81)](https://cf.shopee.com.my/file/922622c834aef6f11de91e6c71ca1c81) Ready StockRemovable Lounge Sofa Bed Floor Recliner Foldable Chair  Adjustable HomeFast Shipping | Shopee Malaysia
+[ ![](https://cf.shopee.sg/file/33a2a1f95cfcf746fd32b716d626ca32)](https://cf.shopee.sg/file/33a2a1f95cfcf746fd32b716d626ca32) Lazy Cushion Sofa Lounger Chair Floor Seat Relaxing Office Home Foldable |  Shopee Singapore
+[ ![](https://cf.shopee.ph/file/30709f37ed255e94d3bff6013f42ee86)](https://cf.shopee.ph/file/30709f37ed255e94d3bff6013f42ee86) Portable Folding Tatami Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/b2a94d20dc76df19b3a8776e61a2485d)](https://cf.shopee.ph/file/b2a94d20dc76df19b3a8776e61a2485d) J&F Floor Chair Recliner Lounger 5-Position Adjustable Backrest Back  Support Seat Fo | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/b1a4f36a224209e2017b58687235d77e)](https://cf.shopee.ph/file/b1a4f36a224209e2017b58687235d77e) Japanese Style Foldable Sofa Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/747b254897f74be92b593b0bf5091312)](https://cf.shopee.ph/file/747b254897f74be92b593b0bf5091312) Beanbag Tatami Bed Chair Floor Small Sofa Ground Mat Bed | Shopee  Philippines
+[ ![](https://cf.shopee.com.my/file/4e38f79edd9eb2b13cc6e27c037b7229)](https://cf.shopee.com.my/file/4e38f79edd9eb2b13cc6e27c037b7229) floor chair - Furniture Prices and Promotions - Home & Living Nov 2020 |  Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/7c7f04af49a7b82c258719bc75a34548)](https://cf.shopee.com.my/file/7c7f04af49a7b82c258719bc75a34548) Tatami foldable long sofa chair | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/e71ea31458bb869c602c505e4f22ceaa)](https://cf.shopee.com.my/file/e71ea31458bb869c602c505e4f22ceaa) Tatami Sofa Lazy Chair Small Sofa Couch Single Leisure Folding Bed Puff  Couch Tatami Floor Chair Home Bedroom Balcony Bay Window Chair | Shopee  Malaysia
+[ ![](https://cf.shopee.sg/file/ad29037771ec7d36b3a98c117aee9055)](https://cf.shopee.sg/file/ad29037771ec7d36b3a98c117aee9055) Japanese Washitsu Chair / Grass Weave Tatami Chair / Hand Made Floor Chair  / Backrest Chair | Shopee Singapore
+[ ![](https://cf.shopee.com.my/file/4f30b14211fb755af09c59e60f88cd4c)](https://cf.shopee.com.my/file/4f30b14211fb755af09c59e60f88cd4c) MUJI Japanese style chair folding chair balcony bay window legless chair  lazy living room tatami chair cushion | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/b4d22863af248973225ac6c14515f5c8)](https://cf.shopee.com.my/file/b4d22863af248973225ac6c14515f5c8) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.sg/file/1952e7242bc1656ad0f00946bc17c2df)](https://cf.shopee.sg/file/1952e7242bc1656ad0f00946bc17c2df) Reclining Lazy Floor Sofa/ Foldable Chair | Shopee Singapore
+[ ![](https://cf.shopee.com.my/file/2551894d76cf1cf9205f1c4f2932fad0)](https://cf.shopee.com.my/file/2551894d76cf1cf9205f1c4f2932fad0) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.ph/file/7b5ab769e5374c284fa0d3d86925bb0e)](https://cf.shopee.ph/file/7b5ab769e5374c284fa0d3d86925bb0e) Floor Type with Backrest Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/2f21127858346728536f5b310879fd25_tn)](https://cf.shopee.ph/file/2f21127858346728536f5b310879fd25_tn) Rattan Straw Tatami Armchair Pastoral Floor Chair Bedroom Leisure Seat |  Shopee Philippines
+[ ![](https://cf.shopee.ph/file/49ee13b11a6c33b69f41a99d29172095)](https://cf.shopee.ph/file/49ee13b11a6c33b69f41a99d29172095) Free Shipping - Beanbag Tatami Single Floor Small Sofa | Shopee Philippines
+[ ![](https://cf.shopee.sg/file/e33fc0319bf1dc6739705f470de72b6a)](https://cf.shopee.sg/file/e33fc0319bf1dc6739705f470de72b6a) Foldable Floor Chair Grid/Pillar | Shopee Singapore
+[ ![](https://cf.shopee.com.my/file/6d9fb82565cffe56ea61e4eb4e3cc71d)](https://cf.shopee.com.my/file/6d9fb82565cffe56ea61e4eb4e3cc71d) floor chair - Furniture Prices and Promotions - Home & Living Nov 2020 |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/d8e1cf67d5dea82ec52f207d7b01b8af)](https://cf.shopee.ph/file/d8e1cf67d5dea82ec52f207d7b01b8af) Simple Soft Cushion Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/5d57e232796bff56c59bf0308ec5d580)](https://cf.shopee.ph/file/5d57e232796bff56c59bf0308ec5d580) Reclining floor chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/e7f8ae78b6e73b94c28d57b6dffddc28)](https://cf.shopee.ph/file/e7f8ae78b6e73b94c28d57b6dffddc28) Snewvie 125*48cm Foldable Seat Cushion Thick Floor Mat Pad Winter Home  Recliner Supplies | Shopee Philippines
+[ ![](https://cf.shopee.sg/file/6d62b9e632d68912a62267afa6b63729)](https://cf.shopee.sg/file/6d62b9e632d68912a62267afa6b63729) Silkworm Multifold  Floor Chair  Five Foldable Mesh Floor Working Sofa  High Quality Adjustable Chair | Shopee Singapore
+[ ![](https://cf.shopee.sg/file/344e7cedfb6b3dc437fad43d82780af9)](https://cf.shopee.sg/file/344e7cedfb6b3dc437fad43d82780af9) Bundle Set] MUJI Floor Chair with Cover Set | Shopee Singapore
+[ ![](https://cf.shopee.com.my/file/676ed1ee0342d5084640d72d42ba7024)](https://cf.shopee.com.my/file/676ed1ee0342d5084640d72d42ba7024) floor chair - Furniture Prices and Promotions - Home & Living Nov 2020 |  Shopee Malaysia
+[ ![](https://cf.shopee.sg/file/2f1d3db27b33618a6c95381f85c3b90f)](https://cf.shopee.sg/file/2f1d3db27b33618a6c95381f85c3b90f) Floor Chair for back and spine support | Shopee Singapore
+[ ![](https://cf.shopee.ph/file/f6da2db8847ba30f155ccac6d750b428)](https://cf.shopee.ph/file/f6da2db8847ba30f155ccac6d750b428) Extreme X Gaming Chair Rocker includes speakers | Shopee Philippines
+[ ![](https://cf.shopee.sg/file/6c1a218e1be3de5498e1a10dbb04c82e)](https://cf.shopee.sg/file/6c1a218e1be3de5498e1a10dbb04c82e) Lazy Sofa Single Tatami Bedroom Balcony Dormitory Small Sofa Bed Back Chair  Folding Cute Floor Chair | Shopee Singapore
+[ ![](https://cf.shopee.ph/file/04242baddd4d347028549735ecf18f63)](https://cf.shopee.ph/file/04242baddd4d347028549735ecf18f63) Soft Adjustable Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/04c9a41f7f9de85fffd72d0a6bf19354)](https://cf.shopee.com.my/file/04c9a41f7f9de85fffd72d0a6bf19354) Foldable Floor Chair Adjustable Relaxing Lazy Sofa Seat Cushion Lounger |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/b71f8530dc56957ed6b4957063db8adc)](https://cf.shopee.ph/file/b71f8530dc56957ed6b4957063db8adc) Simple Soft Cushion Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.sg/file/3b4fb609449791b37d85e0f07732c335)](https://cf.shopee.sg/file/3b4fb609449791b37d85e0f07732c335) Juwn.Lazy Floor Sofa Multi Folding Chair | Shopee Singapore
+[ ![](https://cf.shopee.sg/file/0493f667bce572a4af74bebfe5447f29_tn)](https://cf.shopee.sg/file/0493f667bce572a4af74bebfe5447f29_tn) Back Support Chair / Legless Chair / Floor Chair / Foldable Chair (Extra  Thick Cushion) | Shopee Singapore
+[ ![](https://cf.shopee.sg/file/75d29a88c2a27c4312e6debfb4048233)](https://cf.shopee.sg/file/75d29a88c2a27c4312e6debfb4048233) Floor chair / Wood chair / Backrest chair | Shopee Singapore
+[ ![](https://cf.shopee.ph/file/9ff1eb89bd60d0b97476f2f3ccbefbf1)](https://cf.shopee.ph/file/9ff1eb89bd60d0b97476f2f3ccbefbf1) Portable Folding Tatami Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/9f95e06b522039fb8c6bd72899466f83)](https://cf.shopee.com.my/file/9f95e06b522039fb8c6bd72899466f83) Modern straw rattan chair lazy chair tatami chair legless chair and room /  floor / balcony / bay window chair | Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/affcd02c3602c7a6c31b1ad5f7b5c097)](https://cf.shopee.ph/file/affcd02c3602c7a6c31b1ad5f7b5c097) Living Room Seating Japanese Style Tatami Zaisu Legless Floor Chair 1Pcs |  Shopee Philippines
+[ ![](https://cf.shopee.ph/file/d22538f0255f5c0698d9c2d9129767fd)](https://cf.shopee.ph/file/d22538f0255f5c0698d9c2d9129767fd) Folding Floor Chair Gaming Chair Adjustable Lounger Sofa Lazy Seat Eight  Grid | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/3fffcdaf1bbfa3eaead010a8e474ff47)](https://cf.shopee.ph/file/3fffcdaf1bbfa3eaead010a8e474ff47) Beanbag Tatami Foldable Cushion Small Sofa Single Bed Backrest | Shopee  Philippines
+[ ![](https://cf.shopee.ph/file/797ab78103f6722540718dc689cc261a)](https://cf.shopee.ph/file/797ab78103f6722540718dc689cc261a) Floor Type with Backrest Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/c3c9f9a1077d3b1abd3f3c63f3ff2dfd)](https://cf.shopee.ph/file/c3c9f9a1077d3b1abd3f3c63f3ff2dfd) Recliner floor chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/215b5283a20731032969b0ce5d183cfb)](https://cf.shopee.com.my/file/215b5283a20731032969b0ce5d183cfb) Adjustable Floor Sofa / Floor Chair With Multi Angle / Lazy Chair Soft  Cushion Foldable (Grey) | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/19c1e2112277df4ebe94fd78b9dcaac0)](https://cf.shopee.com.my/file/19c1e2112277df4ebe94fd78b9dcaac0) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.ph/file/22ef55495307b1deec34d0c496530223_tn)](https://cf.shopee.ph/file/22ef55495307b1deec34d0c496530223_tn) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://cf.shopee.sg/file/326ce30a2b86b9688e43f247847ffaf4)](https://cf.shopee.sg/file/326ce30a2b86b9688e43f247847ffaf4) Foldable Lazy Floor Sofa Bed Chair | Shopee Singapore
+[ ![](https://cf.shopee.ph/file/f7a4697a7c9dee9fd81bc125fc128da7)](https://cf.shopee.ph/file/f7a4697a7c9dee9fd81bc125fc128da7) Floor Type with Backrest Chair | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/cc46e0daf05dc9369ffbb8258a14a29a)](https://cf.shopee.com.my/file/cc46e0daf05dc9369ffbb8258a14a29a) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.ph/file/1399e76a8b5b34a2c61b75793e4832c9)](https://cf.shopee.ph/file/1399e76a8b5b34a2c61b75793e4832c9) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://cf.shopee.ph/file/d63fbb2cc69c46f27cb409b370b95ea5)](https://cf.shopee.ph/file/d63fbb2cc69c46f27cb409b370b95ea5) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://cf.shopee.ph/file/b93d078d7ba878e2323012ab896ac7be)](https://cf.shopee.ph/file/b93d078d7ba878e2323012ab896ac7be) Reclining floor chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/5cc712b31648b867db70ef6e3b87ec18)](https://cf.shopee.ph/file/5cc712b31648b867db70ef6e3b87ec18) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/8d30d3536e014aac4d59e38c949ef327)](https://cf.shopee.com.my/file/8d30d3536e014aac4d59e38c949ef327) floor chair - Furniture Prices and Promotions - Home & Living Nov 2020 |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/e4b612c3651864930ae79d4841678505_tn)](https://cf.shopee.ph/file/e4b612c3651864930ae79d4841678505_tn) Portable Folding Tatami Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/7017f0978bd58a1d0c2340c8f87308b3)](https://cf.shopee.ph/file/7017f0978bd58a1d0c2340c8f87308b3) Recliner floor chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/aa494877c81013bce064ae95a4c34dfc)](https://cf.shopee.ph/file/aa494877c81013bce064ae95a4c34dfc) J&F Floor Chair Recliner Lounger 5-Position Adjustable Backrest Back  Support Seat Fo | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/15f2255ba095bed648390a847c1977c2)](https://cf.shopee.ph/file/15f2255ba095bed648390a847c1977c2) Solid Color Single Foldable Floor Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/e7e27d905c352610af50309cf27102f9)](https://cf.shopee.ph/file/e7e27d905c352610af50309cf27102f9) Beanbag Tatami Bed Chair Floor Small Sofa Ground Mat Bed | Shopee  Philippines
+[ ![](https://cf.shopee.ph/file/c3ff152434574682aeb7f79df852ef27)](https://cf.shopee.ph/file/c3ff152434574682aeb7f79df852ef27) Single small tatami folding sofa bed lazy computer back floor chair | Shopee  Philippines
+[ ![](https://cf.shopee.ph/file/a2a353a13ed718a2d7418519f49586c2)](https://cf.shopee.ph/file/a2a353a13ed718a2d7418519f49586c2) Hengyu Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion Lounger Office  Home | Shopee Philippines
+[ ![](https://cf.shopee.com.my/file/66199cf57e78c3665096e8c2887743ea)](https://cf.shopee.com.my/file/66199cf57e78c3665096e8c2887743ea) Brand New & Free Shipping) GTE European Style Multifunctional Adjustable  Foldable Bed Recliner Lazy Chair | Shopee Malaysia
+[ ![](https://cf.shopee.com.my/file/946b36bcd98b8859cc74fba3c05312b7_tn)](https://cf.shopee.com.my/file/946b36bcd98b8859cc74fba3c05312b7_tn) GDeal Lazy Sofa Single Floor Foldable Sofa Bed Recliner Chair (140cm x  49cm) | Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/4c73065f7f6ead28d82688c61219b37f)](https://cf.shopee.ph/file/4c73065f7f6ead28d82688c61219b37f) Beanbag Tatami Bed Chair Floor Small Sofa Ground Mat Bed | Shopee  Philippines
+[ ![](https://cf.shopee.com.my/file/70401263071e54426f34124dda0adfe0_tn)](https://cf.shopee.com.my/file/70401263071e54426f34124dda0adfe0_tn) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.ph/file/aaf331f6ff8e3c42c88a583ff8de2162)](https://cf.shopee.ph/file/aaf331f6ff8e3c42c88a583ff8de2162) Floor Type with Backrest Chair | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/4cd2fcad4423daea861478d3bcb1aef5)](https://cf.shopee.ph/file/4cd2fcad4423daea861478d3bcb1aef5) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://cf.shopee.ph/file/6f7a2d70e0ab392a5b02cc921f9fff7a_tn)](https://cf.shopee.ph/file/6f7a2d70e0ab392a5b02cc921f9fff7a_tn) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://images-na.ssl-images-amazon.com/images/I/81buOTu77zL._AC_SX425_.jpg)](https://images-na.ssl-images-amazon.com/images/I/81buOTu77zL._AC_SX425_.jpg) Amazon.com: bonVIVO Easy II Padded Floor Chair, Semi-Foldable Folding Chair  for Floor Seating, Meditation, Bleachers and Outdoor Chair, Blue & Beige:  Kitchen & Dining
+[ ![](https://cf.shopee.com.my/file/c7a763b3393d7b9716b0e235fb738f07)](https://cf.shopee.com.my/file/c7a763b3393d7b9716b0e235fb738f07) Adjustable Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion | Shopee  Malaysia
+[ ![](https://cf.shopee.com.my/file/62d13175ae851915c69cbb6864baf10a)](https://cf.shopee.com.my/file/62d13175ae851915c69cbb6864baf10a) floor chair - Furniture Prices and Promotions - Home & Living Nov 2020 |  Shopee Malaysia
+[ ![](https://cf.shopee.ph/file/1d166c9f612f642f1b5354d90947734d_tn)](https://cf.shopee.ph/file/1d166c9f612f642f1b5354d90947734d_tn) floor chair - Furniture Prices and Online Deals - Home & Living Nov 2020 |  Shopee Philippines
+[ ![](https://images-sg.girlstyle.com/wp-content/uploads/2020/02/FEA-cover-floor-chair.png?auto=format&w=830&q=100)](https://images-sg.girlstyle.com/wp-content/uploads/2020/02/FEA-cover-floor-chair.png?auto=format&w=830&q=100) 5 Cute & Cosy Floor Chairs For Lazy Days At Home | GirlStyle Singapore
+[ ![](https://cf.shopee.ph/file/a8f0dabf5cf13d46440f86c11035d3c8_tn)](https://cf.shopee.ph/file/a8f0dabf5cf13d46440f86c11035d3c8_tn) Beanbag Tatami Bed Chair Floor Small Sofa Ground Mat Bed | Shopee  Philippines
+[ ![](https://cf.shopee.ph/file/3e038fec4abbf10d5ee9c5cd3c0ecd5f)](https://cf.shopee.ph/file/3e038fec4abbf10d5ee9c5cd3c0ecd5f) Hengyu Foldable Floor Chair Relaxing Lazy Sofa Seat Cushion Lounger Office  Home | Shopee Philippines
+[ ![](https://cf.shopee.ph/file/23d36191efad00f3ddb7d5da5d545190)](https://cf.shopee.ph/file/23d36191efad00f3ddb7d5da5d545190) Floor Type with Backrest Chair | Shopee Philippines
